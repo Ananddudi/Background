@@ -1,1 +1,1 @@
-favorite one
+fav one
